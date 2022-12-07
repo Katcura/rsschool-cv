@@ -1,5 +1,5 @@
 # Chakur Sergey
-### Student
+### a Student
 ___
 ### Contact information
 #### Phone:  +29 3191443
